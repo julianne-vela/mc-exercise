@@ -24,3 +24,12 @@ The GM told his players there was a portable hold somewhere in town and now they
 
 Why can't you give negative reviews of constructs?
 - They're immune to criticals
+
+
+third times the charm
+
+So there are two hyenas and their sitting there eating a clown.
+
+One of them turns to the other and asks
+
+Hey does this taste funny to you?
