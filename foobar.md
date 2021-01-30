@@ -1,8 +1,9 @@
 # mc-exercise
 
+This is a feature we're doing on this thing! it's going to be so great!
+
 what do you call a fake noodle?
 foodle
-
 
 what sort of people are absolutely necessary for a good game?
 - mechanics
