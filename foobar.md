@@ -16,3 +16,6 @@ Why couldn't the chimera decide what to eat?
 
 Where do 10 sided dice come from?
 The Percent Isles
+
+what do you call an aligator ina vest?
+- an investigator!
