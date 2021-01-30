@@ -17,5 +17,10 @@ Why couldn't the chimera decide what to eat?
 Where do 10 sided dice come from?
 The Percent Isles
 
-what do you call an aligator ina vest?
-- an investigator!
+Where did the Dark Lord keep his evil armies?
+- In his evil sleevies
+
+The GM told his players there was a portable hold somewhere in town and now they're looking into it. 
+
+Why can't you give negative reviews of constructs?
+- They're immune to criticals
